@@ -1,3 +1,3 @@
 # ot-mena
 lol
-дгдя
+privet
